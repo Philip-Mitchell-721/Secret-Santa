@@ -1,1 +1,1 @@
-[For Tec](https://arcanis.github.io/secretsanta/pairing.html?name=Tec&key=47133&pairing=U2FsdGVkX1%2FX7UpKFgDO84MODtLA2qBe1FLCIp%2FmSIvJOki%2BFULA7RC%2FnbUfGJhoO1mAmY5j%2Ff8vxKEwV%2BY3hK2RXbARc0Nh5WRVCWgAvzw2be%2BYHZE4%2BlOCWufPUhn%2FSiK2P4gNxU%2BLtIOnzzKzVmReAMFwgJOtItlOMhmLsNHcJdFMQhBH5u9bgxVUKugCMdJFRvyaL6FX%2FzS1s9VrLw%3D%3D)
+[For Tec](https://arcanis.github.io/secretsanta/pairing.html?name=Tec&key=18074&pairing=U2FsdGVkX188Rgrk5%2F6JOvkdRzxsA%2BjDaZDv6lZ9u7Vehj0DrFaz7Unn6aATXAfj)
